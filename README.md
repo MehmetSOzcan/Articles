@@ -1,1 +1,1 @@
-# articals
+# Articles
